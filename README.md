@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @connectwtpablo
 - 👀 I’m interested in ... coding
 - 🌱 I’m currently learning ... coding 
-- 💞️ I’m looking to collaborate on ... a projectg 
+- 💞️ I’m looking to collaborate on ... a project
 - 📫 How to reach me ... paul.mamites@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
